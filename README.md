@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Oluwaseyi-01
 - 👀 I’m interested in Cryptocurrency
-- 🌱 I’m currently learning Codin
+- 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on any Good Project
 - 📫 How to reach me Telegram: OluwaseyiBTC
 
